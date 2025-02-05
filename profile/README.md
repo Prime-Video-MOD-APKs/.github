@@ -1,9 +1,17 @@
 # Amazon Prime Video MOD APK v3.0.395.1347 - Get Premium Features for Free
 Are you a fan of Amazon Prime Video but don't want to pay for a premium subscription? Look no further! The **Amazon Prime Video MOD APK v3.0.395.1347** allows you to unlock all the premium features of the app for free. Enjoy ad-free streaming, exclusive content, unlimited downloads, and much more without spending a dime. In this article, we will walk you through the features of the **Amazon Prime Video MOD APK**, how to download it, and everything you need to know before installing it on your device.
 
-[![acn](https://github.com/user-attachments/assets/0f9c940e-d8b0-45ae-aac7-cd30a18b3e1c)](https://apkbros.com/amazon-prime-video-mod-apk/)
+# 📊 **App Details**
+
+| ![Amazon Prime Video](https://github.com/user-attachments/assets/e9f10034-307d-4a56-8a56-5369bc51c3de) | [![Download Now](https://img.shields.io/badge/Download%20Now-%2300C851?style=for-the-badge&logo=appveyor)](https://example.com/amazon-prime-video-mod-apk-download) |
+|:--------------------------------------------------:|:----------------------------------------------------------------------------------:|
+| **Platform**: Android 5.0+                         | **Version**: 4.1.115.0                                                              |
+| **Size**: 76 MB                                    | ⭐⭐⭐⭐ (4.7/5)                                                                       |
 
 # [ ⬇️ Download Amazon Prime Video MOD APK](https://apkbros.com/amazon-prime-video-mod-apk/) ⬇️
+
+
+📺 **Amazon Prime Video MOD APK 4.1.115.0** lets you stream unlimited movies, TV shows, and Amazon Originals without any subscription charges. Enjoy **premium features unlocked**, **ad-free streaming**, and exclusive content.
 
 Ready to get started? Download the **Amazon Prime Video MOD APK v3.0.395.1347** now and enjoy premium streaming for free!  
 ![Image](https://github.com/user-attachments/assets/164d04a9-98b3-4dd9-b4fd-c2899e559ed3)
